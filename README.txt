@@ -1,4 +1,4 @@
-Tal y como he dicho aqui ire dejando tano desarrollos personales  como prácticas a realizar obligatorias
+Tal y como he dicho en la descripción iré dejando tano desarrollos personales como prácticas a realizar obligatorias.
 
 
 Índice
