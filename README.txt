@@ -3,6 +3,6 @@ Tal y como he dicho en la descripción iré dejando tano desarrollos personales 
 
 Índice
 *******************************
-01 ------> Desarrollo personal (Febrero 2019) adaptado a Práctica obligatoria ----> 17 de Octubre.
+01 ------> Desarrollo personal (Febrero 2019) adaptado a Práctica obligatoria ----> 20 Octubre
 
           
